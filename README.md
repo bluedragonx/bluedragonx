@@ -1,1 +1,1 @@
-Account moved to [@rynbrd](https://github.com/rynbrd)!
+This account redirects to [@rynbrd](https://github.com/rynbrd)! All content has been moved there.
